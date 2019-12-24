@@ -1,3 +1,4 @@
+## Liege Waffles
 There are 10 steps in what follows, but they’re all pretty simple. Seriously. As long as you have a stand mixer, prepping the dough is a snap. Yet it’s also a 2-day process. So I often start my Day 1 mix at 2 in the afternoon and finish it up at 10 at night. The dough is all ready to bake the next day.
 
 Now start mixing, and enjoy!
