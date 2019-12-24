@@ -1,24 +1,24 @@
 ## Blood Orange Gastrita 
 
-2 oz. blanco tequila
-3/4 oz. Cointreau
-3/4 oz. fresh lime juice
-1/2 oz. blood orange-coriander gastrique
+* 2 oz. blanco tequila
+* 3/4 oz. Cointreau
+* 3/4 oz. fresh lime juice
+* 1/2 oz. blood orange-coriander gastrique
 Tools: shaker, strainer
 Glass: cocktail
 Garnish: blood orange wheel and salted rim
 
 Rim the glass with salt and set aside. Shake ingredients with ice in a shake, strain into the salt-rimmed glass and garnish.
 
-blood orange-coriander gastrique
+### Blood orange-coriander gastrique
 
-2 T coriander seeds
-1 T fresh-squeezed lemon juice
-1/2 cup white sugar
-2 T Water
-1/4 cup white wine vinegar
-1/2 cup fresh-squeezed blood orange juice
-1/2 oz. vodka
+* 2 T coriander seeds
+* 1 T fresh-squeezed lemon juice
+* 1/2 cup white sugar
+* 2 T Water
+* 1/4 cup white wine vinegar
+* 1/2 cup fresh-squeezed blood orange juice
+* 1/2 oz. vodka
 
 Tools: Medium saucepan, pastry brush, fine-gauge strainer, sealable glass or plastic containers
 
