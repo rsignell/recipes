@@ -1,13 +1,4 @@
 ## Bavarian Soft Pretzels (Laugenbrezeln)
-last modified on 20 February 2015
-
-Note: Original recipe published in NY Times: May 25, 2010, adapted from a recipe from Zingerman's Bakehouse, Ann Arbor, MI, with further slight modifications by me.
-
-Time: About 2 hours 
-Bavarian Soft Pretzels (Laugenbrezeln)
-last modified on 20 February 2015
-
-Note: Original recipe published in NY Times: May 25, 2010, adapted from a recipe from Zingerman's Bakehouse, Ann Arbor, MI, with further slight modifications by me.
 
 Time: About 2 hours 
 Bavarian Soft Pretzels (Laugenbrezeln)
