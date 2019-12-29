@@ -43,4 +43,4 @@ DIRECTIONS
 
 9. Shape each piece into an oval ball (like a football without the pointy ends) and let it rise (covered loosely in plastic wrap) for 90 minutes.
 
-10. If you have a professional waffle iron (meaning: it’s cast iron and weighs over 30 pounds) cook at exactly 355-360 degrees for approximately 2 minutes. If you have a regular home iron, it may take 4 minutes or longer.
+10. If you have a professional waffle iron (meaning: it’s cast iron and weighs over 30 pounds) cook at exactly 355-360 degrees for approximately 2 minutes. If you have a regular home iron, it may take 4 minutes or longer. It takes 3 min 15 seconds in the Villaware belgian waffle maker. 
