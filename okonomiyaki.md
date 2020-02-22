@@ -9,7 +9,7 @@
 * 1/3 cup all-purpose flour
 * 2 cups cabbage, shredded with a mandoline or finely chopped
 * 1 bunch scallions, trimmed and chopped
-* 3/4 cup (roughly) baby or chopped shrimp (or chicken, or tofu, or...)
+* 1 can baby shrimp or 3/4 cup chopped shrimp (or chicken, or tofu, or...)
 * 1/3 cup canola oil for frying (roughly 1 tablespoon per pancake, using more or less as needed)
 * 1-2 tablespoons toasted sesame seeds
 
