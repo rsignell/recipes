@@ -3,7 +3,7 @@
 * 6 tablespoons cut into cubes, plus more for the pan
 * 8 ounces	SCHARFFEN BERGER 70% Cacao Bittersweet Chocolate, coarsely chopped
 * 3/4 cup plus 2T sugar
-* 1/4 t	salt
+* 1 t vanilla extract
 * 2	large eggs
 * 1/3 c	all-purpose flour
 
@@ -11,9 +11,7 @@
 
 2. Place the chocolate and butter in a large heatproof bowl set over a pot of gently simmering water and stir occasionally until melted and smooth. Remove from the heat.
 
-3. With a large rubber spatula or wooden spoon, beat the sugar and salt into the chocolate mixture. Beat in the eggs one at a time. Add the flour and mix vigorously until the batter is very glossy and pulls away from the sides of the bowl.
-
-4. Break the nuts into large pieces over the batter and fold them in.
+3. With a large rubber spatula or wooden spoon, beat the sugar and salt into the chocolate mixture. Beat in the eggs one at a time. Add vanilla extract. Add the flour and mix vigorously until the batter is very glossy and pulls away from the sides of the bowl.
 
 5. Pour the batter into the prepared pan and tap the pan bottom on the countertop to level the batter. Bake for 30 to 35 minutes, or until a skewer in the center comes out moist but clean.
 
