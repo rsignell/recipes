@@ -1,8 +1,15 @@
-### Spicy Mayo Sauce
+## Okonomiyaki (serves 3-4)
+
+Short-cut americanized version of the famous dish from Osaka-Hiroshima
+region: cabbage/scallion pancakes with spicy mayo. I love this recipe
+because it's healthy, quick, inexpensive and
+delicious!    You can make it in 20 minutes start to finish!
+
+### For the Spicy Mayo Sauce
 * 1/2 cup mayonnaise
 * 2 tablespoons soy sauce
 * 2 teaspoons sriracha, more or less to taste
-### Pancakes
+### For the Cabbage & Scallion Pancakes
 * 5 large eggs
 * 1 teaspoon soy sauce
 * 1 teaspoon sesame oil
@@ -17,4 +24,4 @@ Whisk the first set of ingredients together and voila, your sauce. Set aside whi
 
 In a large mixing bowl, whisk eggs with the soy sauce, sesame oil, and salt. Gradually add the flour until incorporated. Fold in cabbage, scallions, and shrimp.
 
-Warm a couple glugs of canola oil in a skillet over medium-high heat until glistening. Ladle the batter into the skillet as you would for regular old pancakes. I usually make them about the size of saucer. Cook on each side for about 3 minutes or until golden brown. Keep pancakes covered in a warm oven as you make the rest. Scatter sesame seeds and/or bonito flakes on top of pancakes and serve drizzled with the spicy mayo sauce and a cold pilsner.
+Warm a couple glugs of canola oil in a skillet over medium-high heat until glistening. Ladle the batter into the skillet as you would for regular old pancakes. I usually make them about the size of saucer. Cook on each side for about 3 minutes or until golden brown. Keep pancakes covered in a warm oven as you make the rest. Scatter sesame seeds on top of pancakes and serve drizzled with the spicy mayo sauce and a cold pilsner. 
