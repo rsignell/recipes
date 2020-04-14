@@ -23,4 +23,6 @@ Whisk together the flour, baking powder, salt, baking soda, and nutmeg. In a sep
 
 Whisk the banana mixture into the flour mixture. Fill 6 texas muffin pan till almost full (the muffins won't rise much. Sprinkle muffins with the topping.
 
-Bake the muffins for 20-24 min., until they are set and browned. Remove from theoven and let rest in the pan for 5 minute before removing.
+Bake the muffins for 20-24 min., until they are set and browned. Remove from the oven and let rest in the pan for 5 minute before removing.
+
+I like to freeze them individually wrapped in plastic wrap in a freezer bag, then thaw in microwave for 30 s, cut in half and grill in butter until golden brown.  Then spread with nutella!  Yum
