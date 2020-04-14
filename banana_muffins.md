@@ -1,17 +1,17 @@
 ## Banana Oat Bran Muffins
 
 ### Ingredients
-1⁄2 cup plain yogurt
-1 large egg
-1⁄4 cup vegetable oil
-1 1⁄2 cups mashed bananas (usually 3 bananas)
-3⁄4 cup granulated sugar
-1 cup oat bran
-1 1⁄2 cups king arthur unbleached flour (regular flour works fine)
-2 teaspoons baking powder
-1⁄2 teaspoon salt
-1⁄2 teaspoon baking soda
-1⁄4 teaspoon nutmeg (I use fresh)
+* 1⁄2 cup plain yogurt
+* 1 large egg
+* 1⁄4 cup vegetable oil
+* 1 1⁄2 cups mashed bananas (usually 3 bananas)
+* 3⁄4 cup granulated sugar
+* 1 cup oat bran
+* 1 1⁄2 cups king arthur unbleached flour (regular flour works fine)
+* 2 teaspoons baking powder
+* 1⁄2 teaspoon salt
+* 1⁄2 teaspoon baking soda
+* 1⁄4 teaspoon nutmeg (I use fresh)
 
 ### Recipe
 
