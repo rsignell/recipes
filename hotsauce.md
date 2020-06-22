@@ -3,6 +3,7 @@
 ### Ingredients
 * 20g garlic
 * 225g hot peppers (e.g. habanero, aji limon)
+* 500ml vinegar
 * 50g brown sugar
 * 15g salt
 * 10g dry mustard
