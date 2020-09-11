@@ -8,7 +8,7 @@ Quantity: about 1 pint
 * 1 1/3 cups pure cane sugar
 * 1 Tbsp. cinchona bark (I bought online from Penn Herb )
 * 2 Tbsp. powdered citric acid (I bought online from Amazon )
-* 1 lime, zested and juiced
+* 1 lime
 * 1 stalk, fresh lemongrass, diced (Note: fresh is way better, but you can substitute 1/2 tsp cut dried lemongrass, which I also found online from Penn Herb )
 
 ### Instructions
