@@ -11,7 +11,7 @@ or
 
 * 5 cups fresh rhubarb, cut into 1/2-inch pieces
 * 2 cups fresh or frozen strawberries, stems removed and cut in half
-* 1 1/4 cups granulated sugar
+* 2 1/4 cups granulated sugar
 * 1 T freshly squeezed lemon juice
 * 1/4 tsp salt
 * 1/2 tsp ground black pepper 
