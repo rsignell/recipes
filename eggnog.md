@@ -10,6 +10,7 @@ Serves 6.
 * 3 oz cognac
 Beat the yolks until they are light and frothy, then add sugar and beat until smooth. 
 Slowly stir in bourbon, rum, milk, cream and cognac (in that order!)
+If time, refrigerate all ingredients until ready for serving, then:
 Beat egg whites until stiff and then gently fold into mixture. 
-Refrigerate.
 Serve with a dusting of freshly grated nutmeg. 
+If no time, serve with ice. 
