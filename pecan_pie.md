@@ -1,4 +1,4 @@
-#Pecan Pie (Ree Drummand)
+# Pecan Pie (Ree Drummand)
 ## Ingredients
 #### Pie Crust (makes enough for 2 pies)
 * 3 cups all-purpose flour
@@ -18,7 +18,7 @@
 * 3 whole eggs beaten
 * 1 cup (heaping) chopped pecans
 
-##Method
+## Method
 
 First, whip up the pie crust: Mix the flour and salt in a bowl. Add the vegetable shortening and salted butter. Work the butter into the flour using a dough cutter until the mixture resembles tiny pebbles.
 
