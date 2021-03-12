@@ -2,7 +2,7 @@
 
 * 6 tablespoons salted butter, cut into cubes
 * 8 ounces SCHARFFEN BERGER 70% Cacao Bittersweet Chocolate Chunks
-* 3/4 cup plus 2T sugar
+* 3/4 cup plus 2T sugar (200g)
 * 1/2 t vanilla extract
 * 2	large eggs
 * 1/3 c	all-purpose flour
