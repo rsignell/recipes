@@ -1,7 +1,7 @@
 ## Roasted Rooster Hot Sauce 
 
 ### Ingredients
-* 20g garlic
+* 20g garlic (after peeling, so do 35g)
 * 225g hot peppers (e.g. habanero, aji limon)
 * 500ml vinegar
 * 50g brown sugar
