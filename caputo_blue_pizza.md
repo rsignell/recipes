@@ -2,8 +2,10 @@
 
 ### Ingredients:
 
-* 500gr Molino Caputo Tipo 00 flour
-* 325 gr water (65% hydration), 10 gr salt, 3 gr dry active yeast
+* 500g Molino Caputo Tipo 00 flour
+* 325 g water (65% hydration)
+* 10 g salt
+* 3 g dry active yeast
 
 ### Instructions:
 
