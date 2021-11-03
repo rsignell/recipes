@@ -9,7 +9,10 @@
 
 ### Instructions:
 
-We highly recommend cooking by weight. It is fast, and easy to get the exact hydration (water to flour ratio) and dough ball size you want. Mix the dough in a stand mixer, by hand or in a bread machine. If you are using a stand mixer, mix it slowly for two minutes, until you have made a ball. 
+We highly recommend cooking by weight.
+ It is fast, and easy to get the exact hydration (water to flour ratio) and dough ball size you want. 
+
+Mix the dough in a stand mixer, by hand or in a bread machine. If you are using a stand mixer, mix it slowly for two minutes, until you have made a ball. 
 
 Let the dough rest for 10 minutes, to allow the flour to absorb the water. 
 
