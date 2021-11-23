@@ -9,7 +9,7 @@
 * 1/2 tsp pure vanilla extract 
 * 1/4 tsp almond extract 
 
-Combine all ingredients in medium pan except extracts
+Combine all above ingredients in medium pan except extracts
 
 Cook over medium heat for 1/2 hour, then add 7gm knox gelative dissolved in 2T OJ, cool to room temp, add extracts. 
 
