@@ -1,4 +1,5 @@
 #### The Art of Perfect Caputo Pizzeria Crust Recipe
+(4 pizzas)
 
 ### Ingredients:
 
