@@ -8,11 +8,11 @@
 * 1.5 c sliced strawberries
 * 1T butter
 
-## Crust
-2c flour
-1t salt
-3/4c crisco
-5T cold water
+## Pastry Crust 
+* 2c flour
+* 1t salt
+* 3/4c crisco
+* 5T cold water
 
 ## Instructions
 * In a large bowl, combine rhubarb, tapioca, sugar, salt, pepper and orange juice
