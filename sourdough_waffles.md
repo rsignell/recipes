@@ -1,4 +1,5 @@
 # Sourdough Waffles
+Slightly modified from Tim Crones "cowboy" recipe
 #### Ingredients
 * 1c fed starter
 * 2 c lukewarm water
