@@ -6,7 +6,7 @@
 * 1 T sugar
 * 1 egg
 * 4 T melted butter
-* 1/4 c evaporated milk (or instant milk)
+* 1/4 c half and half
 * 1 t salt
 * 1 t baking soda
 * 2 T sugar
