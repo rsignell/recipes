@@ -3,13 +3,13 @@
 * 1c fed starter
 * 2 c lukewarm water
 * 2 1/2 c flour
-* 1 T sugar
+* 1 T sugar or malt syrup 
 * 1 egg
 * 4 T melted butter
 * 1/4 c half and half
 * 1 t salt
 * 1 t baking soda
-* 2 T sugar
+* 2 T sugar or malt syrup
 
 #### Preparation
 * Put the 1c fed starter in a large glass bowl.  Add 2.5 c flour, 2 c lukewarm water, and 1T sugar.  Let rest overnight in warm spot. 
