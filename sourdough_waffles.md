@@ -1,6 +1,8 @@
 # Sourdough Waffles
 Slightly modified from Tim Crone's "cowboy" recipe
-#### Ingredients
+
+Makes 4 full waffle maker (16) waffles
+### Ingredients
 * 1c fed starter
 * 2 c lukewarm water
 * 2 1/2 c flour
