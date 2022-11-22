@@ -23,6 +23,18 @@ INGREDIENTS
 * 11 Tablespoons of butter (slightly cooler than room temperature)
 * 3/4 cup of pearl sugar
 
+INGREDIENTS  (Metric Version!)
+* 2.3g of instant yeast
+* 50g of warm water at 41°C-43°C
+* 200g of all-purpose flour
+* 100g egg (from 2 eggs warmed for several minutes in hot tap water)
+* 28g of light brown sugar
+* 3.8g of salt
+* 10ml of vanilla extract
+* 14.0g of honey
+* 150g of butter (slightly cooler than room temperature)
+* 135g of pearl sugar
+
 DIRECTIONS
 
 1. In the bowl of a stand mixer, dissolve the yeast in 1/4 cup of warm water and allow it to stand for several minutes. Then add 1/2 cup of your flour and 1 egg. Mix to blend.
