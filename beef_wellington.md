@@ -1,5 +1,7 @@
 # Beef Wellington (serves 6-8)
 Recipe from Chowhound, now defunct!
+<img src="./images/29112_beef_wellington.jpg"  width="400" >
+
 #### Ingredients
 * 1/2 ounce dried porcini mushrooms (about 1/2 cup)
 * 1/2 cup boiling water
@@ -24,3 +26,12 @@ Recipe from Chowhound, now defunct!
 5. Heat the oven to 425°F and arrange a rack in the middle. Cut off about one-third of the puff pastry from the sheet and roll it out on a lightly floured surface into a rectangle 1/8 inch thick and at least 1 inch larger than the base of the roast. Transfer to a baking sheet. Prick well with a fork all over and bake until brown and crisp, about 12 to 15 minutes. Transfer the pastry to a cutting board to cool, then trim it to the size of the roast. Return the pastry to the baking sheet; set aside.
 6. Remove the roast from the refrigerator. Remove and discard the plastic wrap. Brush the roast all over with the beaten egg; reserve the remaining egg.
 7. Roll out the remaining puff pastry on a lightly floured surface into a rectangle about 12 by 14 inches. Place the roast on top of the cooked pastry base. Lay the rolled-out pastry over the roast. Use a spatula to lift up the pastry base, then tuck the sides of the uncooked pastry underneath the cooked pastry to seal the roast. Brush the pastry all over with the reserved egg. Roast for 20 minutes. Lower the oven temperature to 400°F and continue to roast for 25 minutes more for rare to medium-rare beef, 30 to 35 minutes for medium. Remove the Wellington from the oven and let it stand for about 10 minutes before slicing.
+
+<img src="./images/29112_beef_wellington_inline_1.jpg"  width="400" >
+<img src="./images/29112_beef_wellington_inline_2.jpg"  width="400" >
+<img src="./images/29112_beef_wellington_inline_4.jpg"  width="400" >
+<img src="./images/29112_beef_wellington_inline_5.jpg"  width="400" >
+<img src="./images/5_inline_wellington_300.jpg"  width="400" >
+<img src="./images/6_inline_wellington_300.jpg"  width="400" >
+<img src="./images/7_inline_wellington_300.jpg"  width="400" >
+
