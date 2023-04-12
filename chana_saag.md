@@ -10,7 +10,7 @@ Cuisine: Indian
 Author: Archana Mundhe
 
 Ingredients
-* 2 15 oz can of chickpeas rinsed and drained, or or 2 cups soaked chickpeas (1 cup dry, soaked overnight)
+* 2 15 oz cans of chickpeas rinsed and drained, or 2 cups soaked chickpeas (1 cup dry, soaked overnight), or 3 cups cooked chickpeas
 * 10 oz bag spinach 
 * 1 15 oz can of diced tomatoes
 * 1 large onion chopped fine
