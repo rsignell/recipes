@@ -2,6 +2,7 @@
 ## Ingredients
 * 1 1/3 cups dried hominy (makes 755g of cooked hominy)
 * 4 poblano peppers
+* 1 small or medium onion
 * 12 oz monterey jack cheese
 * 1/2 lb lard
 * 1 t cumin
