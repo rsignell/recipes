@@ -1,5 +1,5 @@
 # Tamales
-Makes 12 240g tamales (the same size as Tuscon Tamale)
+Makes 12 tamales (each 240g, the same size as Tuscon Tamale)
 ## Ingredients
 * 1.5 cups dried hominy (makes 900g of cooked hominy)
 * 4 poblano peppers
