@@ -10,6 +10,7 @@ Makes 12 240g tamales (the same size as Tuscon Tamale)
 * 1 t hatch green chile powder
 * 1/2 t salt
 * 1.5 t baking powder
+* 12 large corn husks
   
 ## Instructions
 ### Corn Husks
