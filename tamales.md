@@ -10,6 +10,6 @@
 * Put soaked hominy in Instant Pot with 4 cups water, 1/2 t salt and a small to medium onion sliced in half. 
 * Cook on high pressure for 40 minutes, then quick release.
 ### Peppers
-* Roast 4 Poblano Peppers in 400F oven for 20 minutes
+* Roast 4 Poblano Peppers in 400F oven for 40 minutes
 * 
 
