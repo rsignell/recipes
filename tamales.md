@@ -1,5 +1,6 @@
 # Tamales
 Makes 12 tamales (each 240g, the same size as Tuscon Tamale)
+
 Note: Need to start the night before because the hominy needs to be soaked
 ## Ingredients
 * 1.5 cups dried hominy (makes 900g of cooked hominy)
@@ -16,10 +17,10 @@ Note: Need to start the night before because the hominy needs to be soaked
 ## Instructions
 
 ### Masa:
-* Soak dried hominy in 6 cups of water for 8-24 hours, drain
+* Soak dried hominy in 6 cups of water for 8-24 hours, drain soaking water. 
 * Put soaked hominy in Instant Pot with 3.5 cups water, 1/2 t salt and a small to medium onion sliced in half. 
 * Cook on high pressure for 40 minutes, then quick release.
-* Drain into a bowl to reserve the remaining cooking liquid for later
+* Put in colander over a bowl to drain and reserve the remaining cooking liquid for later
 ### Corn Husks
 * Put dry husks in the bottom of the steamer and cover with tap water.  Massage the husks to to rinse.  Discard the water.  Put the husks back in and cover with 1 inch boiling water.  Let sit at least 45 minutes.  
 
