@@ -16,7 +16,7 @@ We first had Panforte Margherita when we stopped into a bakery in Volerra on our
 ## Instructions:
 
 - Preheat the oven to 350 F.   
-- Prepare a 7 or 8 inch spring form pan, lining the bottom with a large rice wafer or greased parchment paper, and greasing the sides well with butter or oil.
+- Prepare a 7 or 8 inch spring form pan, lining the bottom with a large rice wafer or greased parchment paper, and greasing the sides well with butter or oil.  Or I often use 3 small disposible aluminum pans (5 inch diameter, #4012), spraying them with oil.  Eat one and give two away!
 - Spread the sliced almonds on a heavy cookie sheet and roast at 350F for 6-7 minutes.
 - If the candied orange peel is coated with granulated sugar, rinse it off and then pat dry (I believe the granulated sugar can cause the panforte to crystalize).
 - Combine the peel, apricots and nuts in a large bowl.
