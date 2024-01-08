@@ -1,5 +1,5 @@
 # Tamales
-Makes 12 tamales (each 240g, the same size as Tuscon Tamale)
+Makes 12 tamales (each 140g, the same size as Tuscon Tamale)
 
 Note: Need to start the night before because the hominy needs to be soaked
 ## Ingredients
@@ -27,7 +27,7 @@ Note: Need to start the night before because the hominy needs to be soaked
 ### Peppers
 * On a baking sheet covered with foil, roast 4 Poblano Peppers in 400F oven for 35-45 minutes until blackened and collapsed
 * Put in paper bag to steam for 10 min.   
-* Peel and slice into tamale sizes pieces, about 3/4 x 3 in
+* Peel and dice
 
 # Tamales
 * pulse 900g of cooked hominy until it forms a ball
@@ -38,7 +38,7 @@ Note: Need to start the night before because the hominy needs to be soaked
 * Add the rest of masa
 * Add up to 1 cup of cooking liquid until light a fluffy and a piece floats in water.
 * Put 2 inches of water in the bottom of a lobster/clam steamer and invert a colander in the upper part of the steamer to arrange the tamales around.
-* Put a 120g lump on a soaked corn husk and press down with finger or thumb to form a cavity.  Put in roasted pepper slice and 20g of Monterey Jack cheese.
+* Put a 110g lump on a soaked corn husk and press down with finger or thumb to form a cavity.  Put in 1 T roasted peppers and 25g of Monterey Jack cheese.
 * Wrap the husk around and fold up the pointy end
 * Arrange around the colander with open non-pointy end up.
 * Stuff extra corn husks around the tamales to stabilize
