@@ -5,8 +5,7 @@
 * 1 1/4 cups white sugar
 * 1/4 c flour
 * 1 pinch salt
-* 3/4 teaspoon lemon juice
-* 1 1/2 tablespoons butter, cut into small pieces
+* 1 teaspoon lemon juice
 
 ## Instructions
 * Preheat the oven to 400 degrees F (200 degrees C). Place a sheet pan on the lower oven rack. Press one pie pastry into a 9-inch pie pan; set second pastry aside.
