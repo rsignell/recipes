@@ -14,7 +14,7 @@ https://www.youtube.com/watch?v=6RRt74iMnGw
 * 1 cup rice flour
 * 1/4 cup tempura batter mix (Ricker recommends Gogi brand)
 * 1/4 cup water
-Optional: 1–2 tsp naam phrik khao soi (roasted chile paste, for “spicy wings”)
+* Optional: 1–2 tsp naam phrik khao soi (roasted chile paste, for “spicy wings”)
 
 ## MARINATE 
 
