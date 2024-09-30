@@ -1,5 +1,6 @@
 # Ike’s Fish-Sauce Wings
 "In the beginning, Andy Ricker and Ich “Ike” Truong, his first and only employee, were trying to crack the code of one of Southeast Asia’s most addictive drinking snacks."
+https://www.youtube.com/watch?v=6RRt74iMnGw
 
 (Serves 4–8)
 
