@@ -24,5 +24,5 @@
 Separate the eggs, and keep the whites to use somewhere else—like a merengue or your Whiskey Sour. 
 Using an immersion blender or mixer, beat the yolks with the sugar in a large mixing bowl until the mixture lightens in color. 
 Add dairy to a large bowl, then add the liquor and salt, then slowly beat in the egg mixture. 
-Pour into glass jar or bottle and store in the fridge indefinitely. 
+Pour into glass jar or bottle and store in the fridge indefinitely (tastes best after 3 weeks) 
 To serve, pour about 5 oz. into a small glass, and garnish with some freshly grated nutmeg.
