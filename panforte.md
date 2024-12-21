@@ -10,13 +10,13 @@ We first had Panforte Margherita when we stopped into a bakery in Volerra on our
 - 250 g sliced almonds (slivered okay too.  About 2 1/2 cups)
 - 100 g almond or macaroon (better) paste, cut into tiny pieces (forgot to measure this also -- about 1/2 cup, maybe?)
 - 50 g flour (1/2 cup)
-- 5 g cinnamon (1 t)
-- 3 g nutmeg (1/2 t)
+- 1 t cinnamon 
+- 1/2 t nutmeg 
 
 ## Instructions:
 
 - Preheat the oven to 350 F.   
-- Prepare a 7 or 8 inch spring form pan, lining the bottom with a large rice wafer or greased parchment paper, and greasing the sides well with butter or oil.  Or I often use 3 small disposible aluminum pans (5 inch diameter, #4012), spraying them with oil.  Eat one and give two away!
+- Prepare an 8 inch spring form pan, lining the bottom with a large rice wafer or greased parchment paper, and greasing the sides well with butter or oil.  Or I often use 3 small disposible aluminum pans (5 inch diameter, #4012), spraying them with oil.  Eat one and give two away!
 - Spread the sliced almonds on a heavy cookie sheet and roast at 350F for 6-7 minutes.
 - If the candied orange peel is coated with granulated sugar, rinse it off and then pat dry (I believe the granulated sugar can cause the panforte to crystalize).
 - Combine the peel, apricots and nuts in a large bowl.
@@ -24,7 +24,7 @@ We first had Panforte Margherita when we stopped into a bakery in Volerra on our
 - Add the flour mixture to the nuts and fruit and mix well.
 - Make a syrup by adding the water to the sugar and heating until it reaches the thread stage (I heat to 235 degrees F).
 - Add the syrup to the nut & fruit mixture and working quickly, mix well and then press into the prepared pan.
-- Sprinkle with powdered sugar.  If you use a 7 inch pan, cook for 40 minutes at 325, and if you use a 8 inch pan, cook for 350 for 30 min.  Let cool completely before removing from pan.
+- Sprinkle with powdered sugar.  If you use a 5 inch pan, cook for 40 minutes at 325, and if you use a 8 inch pan, cook for 350 for 30 min.  Let cool completely before removing from pan.
 - When cooled, sprinkle top and sides with more powdered sugar.
 
 #### Notes:
