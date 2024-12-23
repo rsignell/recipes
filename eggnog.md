@@ -1,6 +1,7 @@
 # Eggnog 
 This boozy delicious recipe is from Jenny Putnam's dad.
 Serves 6.  
+## ingredients 
 * 2 eggs, separated
 * 140 g sugar
 * 5 oz bourbon
@@ -8,6 +9,7 @@ Serves 6.
 * 3 oz whole milk
 * 8 oz heavy cream
 * 3 oz cognac
+## Instructions
 Beat the yolks until they are light and frothy, then add sugar and beat until smooth. 
 Slowly stir in bourbon, rum, milk, cream and cognac (in that order!)
 If time, refrigerate all ingredients until ready for serving, then:
