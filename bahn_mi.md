@@ -4,13 +4,13 @@ Chau's Banh Mi Method
 I usually make 3 baguettes with a starting weight of around 145-150gm each.  Post bake they are about 120gm, and around 118 after they cool down.
 ## Ingredients
 
-* Flour 100% 50/50 blend of Bread Flour (12-13%) /High Gluten Flour (13-16%) 
-* Water 67%  (If using 100% HG flour adjust hydration up to 72-73%) 
-* Instant Dry Yeast 1%
-* Salt 1-2%
-* Brown sugar 1%
-* Vinegar 1%
-* Oil 0.5%
+* Flour 100% 50/50 blend of Bread Flour (12-13%) /High Gluten Flour (13-16%) (360g)
+* Water 67%  (If using 100% HG flour adjust hydration up to 72-73%) (240g)
+* Instant Dry Yeast 1% (3.6g)
+* Salt 1-2%  (5g)
+* Brown sugar 1% (3.6g)
+* Vinegar 1% (3.6g)
+* Oil 0.5%  (1.8g)
 
 ## Instructions
 -Dissolve IDY in water, and mix equal amounts of flour to make a poolish.  Cover and rest at RT until doubled to triple.  Use before it collapses though.
