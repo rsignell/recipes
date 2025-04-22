@@ -10,7 +10,7 @@ Cuisine: Indian
 Author: Archana Mundhe
 
 Ingredients
-* 2 15 oz cans of chickpeas rinsed and drained, or 3 cups cooked chickpeas, or 1 c dry chickpeas, cooked on high pressure in instant pot for 48 min. 
+* 2 15 oz cans of chickpeas rinsed and drained, or 3 cups cooked chickpeas (e.g. 1 c dry chickpeas, cooked on high pressure in instant pot for 48 min) 
 * 10 oz frozen chopped spinach 
 * 1 15 oz can of diced tomatoes (with juice)
 * 2 cups (200g) onion, chopped fine
