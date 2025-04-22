@@ -10,14 +10,14 @@ Cuisine: Indian
 Author: Archana Mundhe
 
 Ingredients
-* 2 15 oz cans of chickpeas rinsed and drained, or 2 cups soaked chickpeas (1 cup dry, soaked overnight), or 3 cups cooked chickpeas
-* 10 oz bag spinach 
-* 1 15 oz can of diced tomatoes
-* 1 large onion chopped fine
+* 2 15 oz cans of chickpeas rinsed and drained, or 3 cups cooked chickpeas, or 1 c dry chickpeas, cooked on high pressure in instant pot for 48 min. 
+* 10 oz frozen chopped spinach 
+* 1 15 oz can of diced tomatoes (with juice)
+* 2 cups (200g) onion, chopped fine
 * 1 t turmeric
 * 3/4 t cayenne pepper
-* 2 t ginger grated
-* 4 cloves garlic minced
+* 2 t grated ginger
+* 2 t grated garlic
 * 2 t ground cumin or roasted cumin powder
 * 1 t garam masala
 * 1 t dry mango powder amchoor or 2 t lemon juice
@@ -33,5 +33,5 @@ Close Instant Pot with pressure valve to sealing position. Cook on Manual(Hi) fo
 (If using pre-soaked chickpeas cook for 25 mins)
 (you can also add 2lb chicken thighs and cook for 10 min)
 Quick release the pressure. Open IP lid and set on Saute mode.
-Add garam masala and dry mango powder. Add Spinach. Mix everything together and cook for 2-3 mins.
+Add garam masala and dry mango powder. Add Spinach. Mix everything together and cook for 2-3 mins on Saute mode
 Serve hot with Rice or Naan
