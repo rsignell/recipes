@@ -33,5 +33,5 @@ Close Instant Pot with pressure valve to sealing position. Cook on Manual(Hi) fo
 (If using pre-soaked chickpeas cook for 25 mins)
 (you can also add 2lb chicken thighs and cook for 10 min)
 Quick release the pressure. Open IP lid and set on Saute mode.
-Add garam masala and dry mango powder. Add Spinach. Mix everything together and cook for 2-3 mins on Saute mode
+Add garam masala and (dry mango powder or lemon juice). Add Spinach. Mix everything together and cook for 2-3 mins on Saute mode
 Serve hot with Rice or Naan
