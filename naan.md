@@ -6,7 +6,7 @@
 * 380g strong white bread flour, plus extra for dusting
 * 1/2 t baking powder
 * 1/2 T salt 
-* 25g butter or ghee, melted, plus extra 2-3 tbsp for the tray and brushing
+* 25g butter or ghee, melted
 * 150g natural yogurt (or 110g greek yogurt + 40g water)
 * 1.5 T black nigella seeds
 * Coriander stalks (optional)
