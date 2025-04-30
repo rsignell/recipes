@@ -13,11 +13,12 @@
 * Garlic cloves (optional)
 
 ## Method
-1. Activate yeast in warm water with small sprinkle sugar.
-2. Mix flour, remaining sugar, nigella seeds, salt, and baking powder.
-3. Add melted ghee/butter, yogurt  and yeast mixture.
-4. Knead until smooth, then let rise for 1 hour.
-5. Divide dough into eight 90g balls and let rise covered for 20 min or so. 
-6. Roll out dough into flat even shapes.
-7. Fry in a dry hot pan until cooked through.
-8. Brush with melted ghee and keep warm in the oven -or- freeze without ghee for later use. 
+1. Add lukewarm water to stand mixer bowl.  Add sugar and salt and sprinkle in the yeast.  Let sit for 5 min.  
+3. Combine melted ghee/butter, yogurt, nigella seeds, then add to the mixing bowl.
+4. Whisk the baking powder into the flour, then add to mixing bowl.
+5. Set mixer to stir for 2 min, then rest for 10 min, then mix on next level up for 8 minutes (until a finger stuck in comes out dry)
+6. Let rise for 1 hour.
+7. Divide dough into eight 90g balls and let rise covered for 20 min or so. 
+8. Roll out dough into flat even shapes.
+9. Fry in a dry hot pan until cooked through.
+10. Brush with melted ghee and keep warm in the oven -or- freeze without ghee for later use. 
