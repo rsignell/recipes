@@ -1,13 +1,13 @@
 # Naan (serves 6-8):
 ## Ingredients
-* 7g dried instant yeast (1 pack)
-* 2 t golden caster sugar
+* 3.5 g dried instant yeast (1/2 pack)
+* 2 t sugar
 * 125g lukewarm water (100-110F)
-* 380g strong white bread flour, plus extra for dusting
+* 370g (200g all purpose flour, 170g bread flour)
 * 1/2 t baking powder
 * 1/2 T salt 
-* 25g butter or ghee, melted
-* 150g natural yogurt (or 110g greek yogurt + 40g water)
+* 25g butter 
+* 150g yogurt (or 110g greek yogurt + 40g water)
 * 1.5 T black nigella seeds
 * Coriander stalks (optional)
 * Garlic cloves (optional)
