@@ -1,4 +1,4 @@
-# Naan (serves 6-8):
+# Naan (makes 8 NaaN):
 ## Ingredients
 * 3.5 g dried instant yeast (1/2 pack)
 * 2 t sugar
