@@ -1,11 +1,11 @@
 # Naan (makes 8):
 ## Ingredients
 * 3.5 g dried instant yeast (1/2 pack)
-* 2 t sugar
+* 2 t sugar (10 g)
 * 125g lukewarm water (100-110F)
 * 375g (200g all purpose flour, 175g bread flour)
 * 1/2 t baking powder
-* 1/2 T salt 
+* 8 g salt 
 * 25g butter 
 * 150g yogurt (or 110g greek yogurt + 40g water)
 * 1.5 T black nigella seeds
