@@ -4,3 +4,5 @@
 * 2 T sriracha
 * 1 t lime juice
 * 1/8 t sesame oil
+## Directions
+mix together with a small whisk!
