@@ -1,7 +1,7 @@
 # Dubai Tacos and Sauce
 ## Ingredients 
 ### Tacos
-* 2 1/4 lbs 70/30 ground beef (65/35 if available)
+* 2 1/4 lbs 70/30 ground beef (65/35 if available), or at least 80/20.
 * 1 lb (approx. 2 medium) fine diced white onion
 * 2.75 ozs (approx. 4 medium) fine diced jalapeños
 * 5 ozs (approx. 1 medium) fine diced green Bell Pepper 
