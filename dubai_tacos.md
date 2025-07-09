@@ -31,7 +31,7 @@
 
 ## Instructions
 ### Tacos
-1. Pulse the green pepper, onion and jalapenos in a food processor, mix all taco ingredients together with your hands
+1. Pulse the green pepper, onion and jalapenos in a food processor until fine (but not soup!) mix all taco ingredients together with your hands
 2. Form into 110g balls, salt to taste just before grilling.
 3. Heat cast iron skillet to 425 degrees.  Put ball in pan, top with a 5 inch tortilla and press with a spatula until very thin, reaching the edge of the tortilla (it should be as thin as a smash burger!)
 4. When nicely brown, flip and top with white american cheese, then fold and sear both sides until the tortilla is golden brown.
