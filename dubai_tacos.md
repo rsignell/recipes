@@ -1,20 +1,19 @@
 # Dubai Tacos and Sauce
 ## Ingredients 
 ### Tacos
-* 2 1/4 lbs 70/30 ground beef (65/35 if available), or at least 80/20.
-* 1 lb (approx. 2 medium) fine diced white onion
-* 2.75 ozs (approx. 4 medium) fine diced jalapeños
-* 5 ozs (approx. 1 medium) fine diced green Bell Pepper 
-* 1 ounce (approx. 7 cloves) of minced garlic  
-* 2.5 tablespoons of instant coffee 
-* 1 tablespoon of beef or chicken stock powder 
-* 2 tablespoons of black pepper 
-* 1 tablespoon flaked salt
-* 1/2 teaspoon cardamon powder 
-* 3/4 teaspoon nutmeg powder 
-* 1.5 teaspoons cinnamon powder
-* 1.25 teaspoons Smoked Paprika powder
-* 1.5 tablespoons Baking Powder
+* 2 1/4 lbs (1000g) 70/30 ground beef (65/35 if available), or at least 80/20.
+* 1 lb (500g) (approx. 2 medium) fine diced white onion
+* 2.75 ozs (80g) (approx. 4 medium) fine diced jalapeños
+* 5 ozs (140g) (approx. 1 medium) fine diced green Bell Pepper 
+* 1 ounce (30g) (approx. 7 cloves) of minced garlic  
+* 2.5 T (20g) of instant coffee 
+* 1 T (10g) of beef or chicken stock powder 
+* 2 T (15g) of black pepper 
+* 1/2 t (2g) ground cardamon  
+* 3/4 t (4g) ground nutmeg
+* 1.5 t (4g) ground cinnamon
+* 1.25 t (6g) Smoked Paprika
+* 1.5 T (20g) Baking Powder
 
 ### Taco Sauce
 (makes 1 1/4 cups, enough for 8-10 tacos)
@@ -33,9 +32,9 @@
 ## Instructions
 ### Tacos
 1. Pulse the green pepper, onion and jalapenos in a food processor, mix all taco ingredients together with your hands
-2. Form into 110g balls
-3. Heat cast iron skillet to 425 degrees.   Put ball in pan, top with a 5 inch tortilla and press with a spatula until very thin, reaching the edge of the tortilla (it should be as thin as a smash burger!)
-4. After about 30 seconds, top with white american cheese, fold and sear until the tortilla is golden brown, about 30s. Flip to other side and sear it as well.
+2. Form into 110g balls, salt to taste just before grilling.
+3. Heat cast iron skillet to 425 degrees.  Put ball in pan, top with a 5 inch tortilla and press with a spatula until very thin, reaching the edge of the tortilla (it should be as thin as a smash burger!)
+4. When nicely brown, flip and top with white american cheese, then fold and sear both sides until the tortilla is golden brown.
 5. Remove from pan and let cool a bit before topping with sauce. 
 
 ### Sauce
