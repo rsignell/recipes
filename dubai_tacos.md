@@ -5,7 +5,7 @@
 * 1/2 lb (250g) (approx. 2 medium) fine diced white onion
 * 2.75 ozs (80g) (approx. 4 medium) fine diced jalapeños
 * 5 ozs (140g) (approx. 1 medium) fine diced green Bell Pepper 
-* 1 ounce (30g) (approx. 7 cloves) of minced garlic  
+* 0.5 ounce (15g) (approx. 4 cloves) of minced garlic  
 * 1 t (5g) of instant coffee 
 * 1 T (10g) of beef or chicken stock powder 
 * 1 T (7g) of black pepper 
