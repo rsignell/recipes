@@ -2,18 +2,18 @@
 ## Ingredients 
 ### Tacos
 * 2 1/4 lbs (1000g) 70/30 ground beef (65/35 if available), or at least 80/20.
-* 1 lb (500g) (approx. 2 medium) fine diced white onion
+* 1/2 lb (250g) (approx. 2 medium) fine diced white onion
 * 2.75 ozs (80g) (approx. 4 medium) fine diced jalapeños
 * 5 ozs (140g) (approx. 1 medium) fine diced green Bell Pepper 
 * 1 ounce (30g) (approx. 7 cloves) of minced garlic  
-* 2.5 T (20g) of instant coffee 
+* 1 t (5g) of instant coffee 
 * 1 T (10g) of beef or chicken stock powder 
-* 2 T (15g) of black pepper 
+* 1 T (7g) of black pepper 
 * 1/2 t (2g) ground cardamon  
 * 3/4 t (4g) ground nutmeg
 * 1.5 t (4g) ground cinnamon
 * 1.25 t (6g) Smoked Paprika
-* 1.5 T (20g) Baking Powder
+* 1 t (5g) Baking Powder
 
 ### Taco Sauce
 (makes 1 1/4 cups, enough for 8-10 tacos)
