@@ -1,5 +1,5 @@
 # Fish House Punch 
-serves 8
+serves 8 (33 oz)
 ## Ingredients
 * 12 oz Jamaican rum
 * 6 oz brandy or cognac
