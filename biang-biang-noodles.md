@@ -1,4 +1,4 @@
-# Hand-ripped biang biang noodles
+# Hand-Ripped Biang Biang Noodles
 ## Ingredients (for 4 people)
 #### Noodles
 * 400 g bread flour
@@ -20,11 +20,11 @@
 #### Hot oil
 * 45 g hot oil (360 degF)
 ## Instructions
-* 2 hours before you want to eat, mix the noodle dough by hand, let rest for 30 min, divide into 8 pieces, let rest for 60 min
-* combined sauce ingredients
-* chop up the aromatics (scallions, garlic, szechuan pepper and chile flakes) 
-* boil the noodles in salted water for 1.5 min, add cabbage and cook for additional 30s.  
-* drain, add sauce to noodles and divide into four bowls
-* divide the aromatics into 4 and top each bowl with a small pile in the middle
-* pour the 350 degF oil over the top of the aromatics
-* top with spicy cumin pork, if desired!
+* Two hours before you want to eat, mix the noodle dough by hand, let rest for 30 min, divide into 8 pieces, let rest for 60 min
+* Combine sauce ingredients
+* Finely slice aromatics (scallions, garlic)  
+* Boil the noodles in salted water for 1.5 min, add cabbage and cook for additional 30s.  
+* Drain, add sauce to noodles and divide into four bowls
+* Divide the aromatics (scallions, garlic, szechuan pepper and chile flakes) into 4 and top each bowl with a small pile in the middle
+* Pour the 360 degF oil over the top of the aromatics
+* Top with spicy cumin pork, if desired!
