@@ -18,7 +18,7 @@
 #### Noodle addition
 * 3 c thinly sliced cabbage
 #### Hot oil
-* 45 g hot oil (360)
+* 45 g hot oil (360 degF)
 ## Instructions
 * 2 hours before you want to eat, mix the noodle dough by hand, let rest for 30 min, divide into 8 pieces, let rest for 60 min
 * combined sauce ingredients
