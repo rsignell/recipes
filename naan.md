@@ -1,9 +1,9 @@
 # Naan (makes 8):
 ## Ingredients
-* 3.5 g dried instant yeast (1/2 pack)
+* 7 g dried instant yeast (1 pack)
 * 2 t sugar (10 g)
 * 125g lukewarm water (100-110F)
-* 375g (200g all purpose flour, 175g bread flour)
+* 375g (200g all purpose flour, 175g bread flour)  (original recipe calls for 300g, but that isn't enough)
 * 1/2 t baking powder
 * 8 g salt 
 * 25g butter 
