@@ -5,7 +5,7 @@
 * 8 g dark brown sugar (about 2 t)
 * 6 g salt (I use regular table salt)
 * 16 g butter
-* 1 g cayenne pepper (1/2 t)
+* 1 g cayenne pepper (about 1/2 t)
 ## Instructions
 * Roast the nuts at 350F for 10 min
 * Finely chop the rosemary
