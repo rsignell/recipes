@@ -4,7 +4,7 @@
 * Potatoes (土豆), 500g. Just like with Western mashed potatoes, you’ll want something starchy. Generally this dish uses Russets, but Yukon Golds would work just as well.
 * Garlic, 3 cloves. 13g.  Roughly minced.
 * Scallions (葱), 4 sprigs, 70g. White and green parts separated, then sliced. The white portion will be used in the beginning of the stir-fry as an aromatic and the green portion is to finish. If you use red onion instead of scallions, coarse dice 55 g (to use instead of white scallion) and fine dice 15g (to use instead of green scallion)
-* Pickled Vegetable: Yunnan Suan Yancai (酸腌菜), 50g -or- Sichuanese Yacai (芽菜) -or- Sauerkraut -or- skip this. Ok, so I know those are a lot of options. Here’s the thing: usually when you eat this in Yunnan the dish’s made with some of that Yunnan Suan Yancai. Given that even here in China it’s not available everywhere (we needed to buy ours online), I sincerely doubt that it’s available abroad. If you’re familiar with Sichuanese Yacai (i.e. the vegetable that goes into many Dan Dan Noodle toppings), the two pickles are really close in taste and the Yacai would work here as basically a direct sub. But I know that Yacai can also be a bit of a pain for people to source, so we also tested this once with a bit of minced up sauerkraut. Verdict? Pretty good, slightly different taste, but definitely preferable to nothing. So if you got a good Chinese supermarket near you, pick up some Yacai; if not, don’t feel bad subbing in the sauerkraut.
+* Pickled Vegetable: Yunnan Suan Yancai (酸腌菜), 50g -or- Sichuanese Yacai (芽菜) -or- (100g homemade see below) Ok, so I know those are a lot of options. Here’s the thing: usually when you eat this in Yunnan the dish’s made with some of that Yunnan Suan Yancai. Given that even here in China it’s not available everywhere (we needed to buy ours online), I sincerely doubt that it’s available abroad. If you’re familiar with Sichuanese Yacai (i.e. the vegetable that goes into many Dan Dan Noodle toppings), the two pickles are really close in taste and the Yacai would work here as basically a direct sub. But I know that Yacai can also be a bit of a pain for people to source, so we also tested this once with a bit of minced up sauerkraut. Verdict? Pretty good, slightly different taste, but definitely preferable to nothing. So if you got a good Chinese supermarket near you, pick up some Yacai; if not, don’t feel bad subbing in the sauerkraut.
 * Chili powder (辣椒面), 1 tsp. Cayenne pepper would totally work here – some Chinese chili powders are even made from cayennes.
 * Sichuan peppercorn powder (花椒面), 1 tsp. So for this dish we didn’t toast and ground the peppercorns, we just used some bog-standard mass produced supermarket pepper powder. Why? This dish ain’t the mala flavor profile, it’s not really supposed to be numbing. We want the fragrance of the peppercorns here, not their tingling sensation. So if you’re abroad, you’re in luck – the mediocre bottled powder’s actually perfect.
 * Salt, ¼ tsp.
@@ -27,3 +27,19 @@
 * Once the large chunks of potatoes are basically completely gone, add in the Sichuan pepper powder and the scallion greens. Mix and mash for ~30 seconds.
 * Heat off, out.
 * Optionally drizzle your chili oil or the Laoganma on top, quantity depending on your tastes. I personally like topping with about 2 tbsp of chili oil.
+
+## Suancai facsimile
+* one 10.5 oz pack of Three Elephant Pickled Mustard Greens: (Thai-style Dưa Cải Chua), drained. 
+* 2 T of Fan Sao Guang (饭扫光) Preserved Pickled Mustard: (Sichuan-style oil-preserved condiment).
+
+To get close to the flavor and texture needed for the mashed potatoes, follow these steps:
+
+Prep the Greens: Take the Three Elephant greens out of the bag and rinse them thoroughly to remove the excess brine. Squeeze them as dry as possible with your hands or a kitchen towel.
+
+Chop Finely: Mince the greens into very small pieces (3–5 mm).
+
+Dry-Sear: Put the chopped greens into a dry pan over medium heat. Stir-fry them for 3–5 minutes without oil to cook off the excess moisture. This firms up the texture and mimics the "dry-fermented" style.
+
+Combine: Once the greens look matte and slightly shriveled, add a tablespoon of oil and 1–2 tablespoons of the Fan Sao Guang (the jarred stuff). Sauté them together for another minute.
+
+The Three Elephant greens will provide the acidity, and the Fan Sao Guang will provide the spice, oil, and depth that the Yunnan variety usually has.
