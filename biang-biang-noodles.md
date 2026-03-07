@@ -20,9 +20,9 @@
 #### Hot oil
 * 45 g hot oil (360 degF)
 ## Instructions
-* Two hours before you want to eat, mix the noodle dough by hand, let rest for 30 min, divide into 8 pieces, let rest for 60 min
+* Two hours before you want to eat, mix the noodle dough by hand, let rest for 30 min.
 * The dough should feel much more elastic and supple after resting. Once rested, knead the dough for another 3 to 5 minutes, then rest for 5 more minutes.
-Using a rolling pin and your hands, work the dough into a rectangle about 6" by 12" (15 cm by 30 cm). Cut the dough into six (100 g) pieces, making them each about 2" (5 cm) wide.
+Using a rolling pin and your hands, work the dough into a rectangle about 6" by 12" (15 cm by 30 cm). Cut the dough into 8 (75 g) pieces, making them each about 2" (5 cm) wide.
 Brush the noodle pieces with a neutral oil. Add a drizzle to a container and stack noodles slightly overlapping like leaning books, not right on top of each other. Cover the container and let rest for at least 1 hour or in the fridge for up to 3 days.
 * Combine sauce ingredients
 * Finely slice aromatics (scallions, garlic)  
