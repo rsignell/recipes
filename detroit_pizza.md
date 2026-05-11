@@ -38,8 +38,8 @@ Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Shar
 8. **Rest:** Let the pizza sit in the pan for 5 minutes before removing to prevent the cheese crown from collapsing.
 
 ### Estimated Schedule
-* Start Mixing: 12:20 PM
-* Start 3-Hour Rise: 1:15 PM
-* Preheat Oven: 3:45 PM
-* Bake: 4:15 PM
-* Eat: 4:45 PM
+* Start Mixing: 1:20 PM
+* Start 3-Hour Rise: 2:15 PM
+* Preheat Oven: 4:45 PM
+* Bake: 5:15 PM
+* Eat: 5:45 PM
