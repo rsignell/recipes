@@ -36,3 +36,10 @@ Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Shar
 6. **Assemble:** Heat oven to 500°F. Spread the cheese blend edge-to-edge. Spoon the sauce in three parallel "racing stripes" over the cheese.
 7. **Bake:** Place on the lowest rack for 15 minutes.
 8. **Rest:** Let the pizza sit in the pan for 5 minutes before removing to prevent the cheese crown from collapsing.
+
+### Estimated Schedule
+* Start Mixing: 12:20 PM
+* Start 3-Hour Rise: 1:15 PM
+* Preheat Oven: 3:45 PM
+* Bake: 4:15 PM
+* Eat: 4:45 PM
