@@ -1,5 +1,5 @@
 ## Detroit-Style Pizza
-Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Sharp White Cheddar, Mozzarella) to simulate authentic Wisconsin brick cheese.
+Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Sharp White Cheddar, Mozzarella) to simulate authentic Wisconsin brick cheese. Start at 1:30pm to eat just before 6pm (see bottom for detailed schedule).  Plenty of time to nap during the rise.  :)
 
 ### Dough
 * 140.5g King Arthur All-Purpose Flour
@@ -34,12 +34,13 @@ Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Shar
 4. **Relax & Stretch:** Place dough in the pan and let rest, covered, for 15 minutes. Press the dough into the corners with oiled fingertips.
 5. **Triple Rise:** Cover and let rise at room temperature until tripled in volume (approx. 3 hours).
 6. **Assemble:** Heat oven to 500°F. Spread the cheese blend edge-to-edge. Spoon the sauce in three parallel "racing stripes" over the cheese.
-7. **Bake:** Place on the lowest rack for 15 minutes.
-8. **Rest:** Let the pizza sit in the pan for 5 minutes before removing to prevent the cheese crown from collapsing.
+7. **Bake:** Place on the lowest 1/3 of the oven for 17 minutes.
+8. **Rest:** Let the pizza sit in the pan for 5 minutes before removing to prevent the cheese crown from collapsing, then cut in the pan and move pieces to a wire rack. 
 
 ### Estimated Schedule
-* Start Mixing: 1:20 PM
-* Start 3-Hour Rise: 2:15 PM
-* Preheat Oven: 4:45 PM
-* Bake: 5:15 PM
-* Eat: 5:45 PM
+* Start Mixing: 1:30 PM
+* Start 3-Hour Rise: 2:25 PM
+* Preheat Oven: 4:55 PM
+* Bake: 5:25 PM
+* Cool: 5:42 PM
+* Eat: 5:47 PM
