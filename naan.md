@@ -8,7 +8,7 @@
 * 8 g salt 
 * 25g butter 
 * 150g yogurt (or 110g greek yogurt + 40g water)
-* 1.5 T black nigella seeds
+* 1.5 T black nigella seeds (12g)
 * Coriander stalks (optional)
 * Garlic cloves (optional)
 
