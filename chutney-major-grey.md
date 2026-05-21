@@ -1,6 +1,4 @@
-# Major Grey's Chutney (50% Yield)
-
-**TL;DR:** A halved formulation of Major Grey's chutney, maintaining standard metric mass for structural ingredients and volumetric measurements for aromatics, processed via thermal reduction.
+# Major Grey's Chutney 
 
 ## Ingredients
 * **Firm mango (cubed):** 495 g
