@@ -2,12 +2,12 @@
 Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Sharp White Cheddar, Mozzarella) to simulate authentic Wisconsin brick cheese. Start at 1:30pm to eat just before 6pm (see bottom for detailed schedule).  Plenty of time to nap during the rise.  :)
 
 ### Dough
-* 140.5g King Arthur All-Purpose Flour
-* 140.5g King Arthur Bread Flour
-* 246g water (room temp)
+* 145g King Arthur All-Purpose Flour
+* 145g King Arthur Bread Flour
+* 245g water (room temp)
 * 6g (1½ tsp) sugar
 * 5g (1½ tsp) instant yeast
-* 4.5g (¾ tsp) fine sea salt
+* 6g (¾ tsp) fine sea salt
 * 13g (1 tbsp) extra-virgin olive oil (for the pan)
 
 ### "Brick-Style" Cheese Blend (280g total)
@@ -23,7 +23,7 @@ Uses a 50/50 blend of King Arthur flours and a triple-cheese mix (Muenster, Shar
 * 1g (1 tsp) dried oregano
 * 1g (1 tsp) dried basil
 * 2g (½ tsp) sugar
-* 1.5g (¼ tsp) salt
+* 3g (1/2 tsp) salt
 * 1g (½ tsp) black pepper
 
 ### Instructions
