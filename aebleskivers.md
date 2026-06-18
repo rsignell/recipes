@@ -1,7 +1,7 @@
 Making Aebleskiver is a fun and rewarding process, and the key to success lies in a few simple steps. The following recipe is a classic, well-regarded version that consistently produces light, fluffy, and delicious pancake balls. It's a combination of common ingredients and techniques found in many popular recipes.
 ### Classic Buttermilk Aebleskiver
 This recipe uses separated eggs, which is a key technique for achieving a light and airy texture. Whipping the egg whites to stiff peaks and then gently folding them into the batter creates a lift that makes all the difference.
-**Yields:** Approximately 16-20 Aebleskiver
+**Yields:** Approximately 30 Aebleskiver
 **Prep time:** 15 minutes
 **Cook time:** 15-20 minutes
 #### Ingredients:
