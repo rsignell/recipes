@@ -10,12 +10,13 @@ This recipe uses separated eggs, which is a key technique for achieving a light 
  * 1 teaspoon baking soda
  * 1 teaspoon baking powder
  * ½ teaspoon salt
+ * 1 teaspoon ground cardamom
  * 2 large eggs, separated
  * 2 cups buttermilk
  * 4 tablespoons butter, melted, plus extra for the pan
  * ½ teaspoon vanilla extract (optional)
 #### Instructions:
- 1. **Prepare the Dry Ingredients:** In a medium bowl, whisk together the flour, sugar, baking soda, baking powder, and salt. Set aside.
+ 1. **Prepare the Dry Ingredients:** In a medium bowl, whisk together the flour, sugar, baking soda, baking powder, cardamom and salt. Set aside.
  2. **Prepare the Wet Ingredients:** In a separate large bowl, whisk together the egg yolks, buttermilk, melted butter, and vanilla extract (if using) until well combined.
  3. **Whip the Egg Whites:** In a clean, dry bowl, use an electric mixer to beat the egg whites on high speed until stiff peaks form. The peaks should stand up on their own when you lift the whisk.
  4. **Combine the Batters:** Add the dry ingredient mixture to the wet ingredient mixture and stir until just combined. Be careful not to overmix; a few lumps are okay.
