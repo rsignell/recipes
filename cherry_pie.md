@@ -3,17 +3,11 @@
 ### The Filling
 
 * Frozen tart cherries: 6 cups (do not thaw beforehand). 
-
 * Granulated sugar: 1 cup (adjust slightly depending on the acidity of the cherries)
-
 * Cornstarch: 5 tablespoons
-
 * Ground cardamom: 1/4 teaspoon
-
 * Fine sea salt: 1/4 teaspoon
-
 * Almond extract: 1/2 teaspoon
-
 * Unsalted butter: 1 tablespoon (cold)
 
 ## The Pastry
