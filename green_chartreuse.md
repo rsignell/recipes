@@ -6,7 +6,7 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 
 #### The Solvent Base
 - 238 g 190-Proof Everclear
-- 79 g Distilled Water
+- 79 g Water
 
 *Note: This yields 375 ml of 150-proof base solvent.*
 
