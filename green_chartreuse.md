@@ -15,8 +15,8 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 **Group 1: Roots & Spices (Structural Base)**
 - 1.25g Angelica root (dried and chopped)
 - 1.5g Coriander seeds (lightly crushed)
-- 0.5g Fennel seeds (lightly crushed)
-- 0.25g Star anise (broken)
+- 0.75g Fennel seeds (lightly crushed)
+- 0.75g Star anise (broken)
 - 0.5g Whole mace
 - 0.5g Green cardamom pods (crushed)
 
