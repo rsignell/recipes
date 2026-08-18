@@ -25,7 +25,7 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 - 5g Fresh peppermint leaves
 - 2.5g Fresh sage leaves
 - 2.5g Fresh True Hyssop (*Hyssopus officinalis*) - *Alternate: 2g fresh thyme + 0.5g fresh rosemary*
-- Peel of 1/2 lemon (yellow skin only, no pith)
+- Peel of 1/2 lemon (yellow skin only, no pith) (optional, I haven't tried adding this yet)
 
 #### The Dilution Matrix (2:1 Rich Simple Syrup)
 - 150g Sucrose (White Sugar)
