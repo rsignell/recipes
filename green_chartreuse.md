@@ -19,7 +19,6 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 - 0.25g Star anise (broken)
 - 0.5g Whole mace
 - 0.5g Green cardamom pods (crushed)
-- 1g dried gentian root OR 1.5g chopped cinchona bark (Bittering Agent)
 
 **Group 2: Fresh Botanicals (High Notes & Colour)**
 - 7.5g Fresh lemon balm leaves
