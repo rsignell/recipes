@@ -36,9 +36,9 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 ## Instructions
 
 1. **Initial Solvent Reduction:** Combine the 296 ml of 190-proof Everclear with the 79 ml of distilled water in an airtight glass jar to establish the 375 ml of 150-proof solvent.
-2. **Primary Maceration (7 to 10 days):** Introduce the Group 1 roots and spices into the solvent. Store the sealed vessel in a cool, dark environment, agitating it once daily.
-3. **Secondary Maceration (24 to 48 hours):** Add the Group 2 fresh botanicals directly into the mixture. Do not exceed 48 hours.
+2. **Primary Maceration (7 days):** Introduce the Group 1 roots and spices into the solvent. Store the sealed vessel in a cool, dark environment, agitating it once daily.
+3. **Secondary Maceration (24 hours):** Add the Group 2 fresh botanicals directly into the mixture. Do not exceed 48 hours.
 4. **Filtration:** Strain the liquid through a fine-mesh sieve, pressing the botanicals gently. Pass the liquid through a coffee filter to clarify.
 5. **Syrup Preparation:** Gently heat the 150g of sugar and 75g of water until fully dissolved. Allow to cool completely.
 6. **Final Dilution:** Measure exactly 136 ml (180 grams) of the cooled syrup and blend it into the filtered infusion.
-7. **Ambient Rest & Cold Stabilisation:** Rest the liqueur at room temperature for exactly 24 hours to encourage esterification. Transfer to a refrigerator (approximately 38°F) to halt oxidation and protect the green colour.
+7. **Ambient Rest & Cold Stabilisation:** Rest the liqueur at room temperature for 24 hours to encourage esterification. Transfer to a refrigerator (approximately 38°F) to halt oxidation and protect the green colour.  You can also add 0.5 g ascorbic acid powder (vitamin C) to protect the green color. 
