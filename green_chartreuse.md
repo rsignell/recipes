@@ -29,7 +29,7 @@ Yield: Approx. 511 ml (110-proof / 55% ABV)
 
 #### The Dilution Matrix (2:1 Rich Simple Syrup)
 - 150g Sucrose (White Sugar)
-- 75g (75 ml) Distilled Water
+- 75g Water
 
 *Note: You will use exactly 136 ml (180 grams) of the finished syrup.*
 
