@@ -1,4 +1,4 @@
-# Chef Billy Parisi's Focaccia alla Genovese (Corrected)
+# Chef Billy Parisi's Focaccia alla Genovese (modified)
 
 A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-ferment, a balanced 75% hydration dough, and a warm salt-water-and-olive-oil emulsion (salamoia) poured into deep finger dimples before baking on a low oven rack.
 
