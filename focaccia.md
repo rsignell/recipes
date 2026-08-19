@@ -9,7 +9,7 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 #### Ingredients
 
 **Biga (pre-ferment, Day 1 evening)**
-* Bread flour: 270 g
+* Bread flour: 335 g
 * Water (room temp, ~70°F): 160 g
 * Active dry yeast: 1 g (approx. ⅓ tsp)
 
@@ -29,13 +29,13 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 
 #### Instructions
 
-1. Build the biga (Day 1, evening): In a small bowl, combine 270 g bread flour, 160 g room-temperature water, and 1 g active dry yeast. Mix with a spoon or your hands until a firm, shaggy dough ball forms. Cover tightly with plastic wrap and let ferment at room temperature (70°F–72°F) for 12 to 16 hours.
-2. Mix main dough (Day 2): Tear the fermented biga into smaller pieces and drop them into the bowl of a stand mixer fitted with the dough hook. Add 370 g bread flour, 325 g warm water, 3 g active dry yeast, 15 g fine sea salt, and 25 g extra-virgin olive oil.
+1. Build the biga (Day 1, evening): In a small bowl, combine 335 g bread flour, 160 g room-temperature water, and 1 g active dry yeast. Mix with a spoon or your hands until a firm, shaggy dough ball forms. Cover tightly with plastic wrap and let ferment at room temperature (70°F–72°F) for 8-24 hours.
+2. Mix main dough (Day 2): Tear the fermented biga into smaller pieces and drop them into the bowl of a stand mixer fitted with the dough hook. Add 335 g bread flour, 255 g warm water, autolyze for 20 min.  Add 85 g water, 3 g active dry yeast, 10 g fine sea salt, and 25 g extra-virgin olive oil.
 3. Knead in stand mixer: Knead on low speed for 2 minutes to combine, then increase to medium (speed 4 on a KitchenAid) and knead for 8 to 10 minutes. The dough should completely pull away from the sides of the bowl, clinging only slightly to the bottom.
 5. Pan proof & initial stretch: Pour 2 tbsp (~30 g) of extra-virgin olive oil into your pan, coating the bottom and sides evenly. Transfer the dough to the pan. Cover and rest for 15 minutes to relax the gluten, then push it fully into the corners. Cover and let rise for 60-90 minutes until light and puffy.
 6. Build the brine emulsion: Set your oven rack to the bottom-third position and preheat the oven to 450°F. In a small measuring cup or bowl, add the warm water, and while whisking continuously (or using an immersion blender), stream in 2 tbsp (~30 g) of extra-virgin olive oil until a pale, cloudy emulsion forms.
 7. Brine & dimple: Pour the emulsified brine evenly over the surface of the puffed dough. Coat your hands in olive oil and press your fingers straight down through the liquid until you touch the bottom of the pan to create deep, wide dimples across the entire surface. Optionally sprinkle with chopped fresh rosemary leaves.
-8. Bake: Bake at 450°F on the middle rack for 20 minutes until the top is deeply golden brown, the dimples remain soft and pale, and the bottom crust is crisp and sizzling in olive oil.  If the top is not sufficiently brown, turn on convection, drop temp to 425 and cook for addtional 2-5 minutes, checking frequently.
+8. Bake: Convection bake at 425°F on the middle rack for 20 minutes until the top is deeply golden brown, the dimples remain soft and pale, and the bottom crust is crisp and sizzling in olive oil.  
 9. Cool: Transfer the focaccia immediately from the pan to a wire cooling rack to prevent the bottom crust from steaming and softening.  Wait 10 minutes before slicing. 
 
 #### Notes & Tips
