@@ -19,7 +19,7 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 * Warm water (100°F–105°F): 325 g
 * 5 g malt syrup
 * Active dry yeast: 3 g (1 tsp)
-* Fine sea salt: 15 g
+* Fine sea salt: 10 g
 
 **Pan, brine & topping**
 * 30 g Extra-virgin olive oil for pan
