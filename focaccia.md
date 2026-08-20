@@ -17,6 +17,7 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 * All of the biga (from Day 1)
 * Bread flour: 370 g
 * Warm water (100°F–105°F): 325 g
+* 5 g malt syrup
 * Active dry yeast: 3 g (1 tsp)
 * Fine sea salt: 15 g
 
@@ -30,7 +31,7 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 #### Instructions
 
 1. Build the biga (Day 1, evening): In a small bowl, combine 335 g bread flour, 160 g room-temperature water, and 1 g active dry yeast. Mix with a spoon or your hands until a firm, shaggy dough ball forms. Cover tightly with plastic wrap and let ferment at room temperature (70°F–72°F) for 8-24 hours.
-2. Mix main dough (Day 2): Tear the fermented biga into smaller pieces and drop them into the bowl of a stand mixer fitted with the dough hook. Add 335 g bread flour, 255 g warm water, autolyze for 20 min.  Add 85 g water, 3 g active dry yeast, 10 g fine sea salt, and 25 g extra-virgin olive oil.
+2. Mix main dough (Day 2): Tear the fermented biga into smaller pieces and drop them into the bowl of a stand mixer fitted with the dough hook. Add 335 g bread flour, 255 g warm water, autolyze for 20 min.  Add 85 g water, 3 g active dry yeast, 10 g fine sea salt, 5 g malt syrup, and 25 g extra-virgin olive oil.
 3. Knead in stand mixer: Knead on low speed for 2 minutes to combine, then increase to medium (speed 4 on a KitchenAid) and knead for 8 to 10 minutes. The dough should completely pull away from the sides of the bowl, clinging only slightly to the bottom.
 5. Pan proof & initial stretch: Pour 2 tbsp (~30 g) of extra-virgin olive oil into your pan, coating the bottom and sides evenly. Transfer the dough to the pan. Cover and rest for 15 minutes to relax the gluten, then push it fully into the corners. Cover and let rise for 60-90 minutes until light and puffy.
 6. Build the brine emulsion: Set your oven rack to the bottom-third position and preheat the oven to 450°F. In a small measuring cup or bowl, add the warm water, and while whisking continuously (or using an immersion blender), stream in 2 tbsp (~30 g) of extra-virgin olive oil until a pale, cloudy emulsion forms.
