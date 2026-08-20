@@ -4,7 +4,7 @@ A traditional Ligurian Focaccia alla Genovese utilizing a multi-day biga pre-fer
 
 * Yield: 1 sheet pan (13x18 inch half-sheet or 12x16 inch pan)
 * Prep time: 20 mins (+ 12–16 hrs biga rise + 2 hrs dough proof)
-* Bake time: 18–22 mins @ 450°F
+* Convection Bake time: 18–22 mins @ 425°F
 
 #### Ingredients
 
